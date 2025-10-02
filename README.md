@@ -1,2 +1,2 @@
 # Самый пиздатый сервер в мадахау
-![Agnes](https://i.pinimg.com/736x/4c/0f/a6/4c0fa686a849947746b5c1a06720c9ab.jpg)
+![Agnes](https://i.pinimg.com/736x/9d/f0/77/9df077b1bcf37ef78f2f94e5bfb5e7e9.jpg)
