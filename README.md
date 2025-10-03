@@ -1,2 +1,2 @@
 # Самый пиздатый сервер в мадахау
-![Agnes Tachyon](https://i.pinimg.com/736x/9d/f0/77/9df077b1bcf37ef78f2f94e5bfb5e7e9.jpg)
+![Перекрутик...](https://cdn.discordapp.com/attachments/1333401907527417929/1423725820354236466/perekrut.png)
